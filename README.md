@@ -1,7 +1,7 @@
 - Hii, I’m Izabel
 - Pronouns: she/her
 - straight
-- 14-15yrs old
+  ~2010~
   
   Wanderer/Scara's girlfriend trust<3
 Kissing every Scara I see
