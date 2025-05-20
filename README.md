@@ -1,6 +1,6 @@
-- Hii, I’m Izabel       Pony Town player
-- Pronouns: she/her     Genshin player
-- straight              Pjsk player
+- Hii, I’m Izabel   
+- Pronouns: she/her  
+- straight           
   ~2010>>25.8
   
   Wanderer/Scara's girlfriend trust<3
