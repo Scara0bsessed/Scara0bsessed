@@ -1,5 +1,5 @@
-- Hii, I’m Izabel   
-- Pronouns: she/her  
+- Haii, I’m Izabel   
+- Pronouns: she/her preffered  
 - straight           
   ~2010>>25.8
   
