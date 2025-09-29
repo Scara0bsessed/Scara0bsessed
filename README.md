@@ -9,8 +9,6 @@ Currently studying for exams and online most of the time.
 
 I dont like to be alone so you can approach me or cuddle anytime! <33
 
-I'm jokingly flirting with my close friends, I can get jealous easily even if I don't show it (I'm just distancing myself if that happens) and I'm really clingy
-
  ❕️I kiss/cuddle people a lot so if you're not comfortable with something, better tell me directly, signs dont really help (Im dumb I know💔) 
 
 It's okay to feel shy, I just find it endearing when people sit with me, even if they don't talk<3
