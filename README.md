@@ -9,9 +9,9 @@ Currently studying for exams and online most of the time.
 
 I dont like to be alone so you can approach me or cuddle anytime! <33
 
- ❕️I kiss/cuddle people a lot so if you're not comfortable with something, better tell me directly, signs dont really help (Im dumb I know💔) 
+May be overly active or not in the mood for anything pls be patient with me --
 
-It's okay to feel shy, I just find it endearing when people sit with me, even if they don't talk<3
+I love when people sit with me, even if they don't talk<3
  If you want to vent, you're more than welcome to do so, just not too much negativity, it's not good for any of us!
 
 I hope you won't go bald❤️
