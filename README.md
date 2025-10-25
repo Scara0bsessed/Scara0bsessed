@@ -5,7 +5,7 @@
   
   Wanderer/Scara's girlfriend trust <3
 
-Online most of the time// strict Dni: Kzscr, Xiaoluc, Scaradurin, Aelumi, Collenari shippers, toxic Genshin players, Toxic Scara fans or if you sexualize him, Yall are the reason people hate him, he's one of the best written characters he doesnt deserve ts 💔
+Online most of the time//
 
 I dont like to be alone so you can approach me or cuddle anytime! <33
 
