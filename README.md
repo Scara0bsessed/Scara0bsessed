@@ -1,7 +1,7 @@
 Helluu, I’m Izabel (can use Iza for short)  
   Pronouns: she/her preffered  
    straight           
-    ~2010>>25.8
+    ~15yo>>25.8
 ![1000064873](https://github.com/user-attachments/assets/eff408c2-492a-4df6-a181-6ea305b42a83)
 
 
@@ -25,3 +25,4 @@ I hope you won't go bald❤️
 ![1000065040](https://github.com/user-attachments/assets/d3b63655-02d2-438a-ad57-bc43f0de502a)
 
     
+    "Do you feel what I feel? Do you love like I love? Would you hold my hand? Would you let me go? Would you stand by my side? Are you down for the ride? I don't need nobody else but you.."
