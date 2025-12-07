@@ -1,7 +1,7 @@
-Helluu, I’m Izabel (can use Iza for short)  
-  Pronouns: she/her preffered  
-   straight           
-    ~15yo>>25.8
+♡Helluu, I’m Izabel (can use Iza for short)  
+  ♡Pronouns: she/her 
+   ♡straight           
+    ♡~15yo>>25.8
 ![1000064873](https://github.com/user-attachments/assets/eff408c2-492a-4df6-a181-6ea305b42a83)
 
 
